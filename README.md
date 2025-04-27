@@ -1,2 +1,1 @@
-# RICHIE-PINEDA-
-Richie Pineda 
+Richie Pineda
